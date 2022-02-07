@@ -12,13 +12,13 @@ Thanks so much for reaching out. I'm always interested in hearing about what new
 
 It does however mean that I don't have the time to hop on a call with everyone who reaches out. A lot of the time, incoming messages represent a very poor fit indeed.
 
-I would love to continue the conversation, but before I do, I'd like to level set around the level of seniority that you're looking for. 
+I would love to continue the conversation, but before I do, I'd like to level set around the level of seniority that you're looking for. However I am only interested in hearing about freelance contracts, if you are writing about a permanent position, I shall be unavailable for further discussion.
 
 Can you send along the company name, a job description and duration of the contract, for the role you're reaching out in reference to? 
 
 While I very much appreciate the fact that exceptionally talented and engaged recruiters reach out consistently, sorting serious and high quality opportunities from spam would be a full time job without an autoresponder.
 
-In the absence of detailed information regarding the nature of the opportunity in question, I will be unavailable for further discussion.
+In the absence of detailed information regarding the nature of the opportunity in question, I shall be unavailable for further discussion.
 Thanks again for reaching out!
  
 I look forward to hearing from you.

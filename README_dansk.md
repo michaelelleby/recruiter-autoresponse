@@ -12,7 +12,7 @@ Tak for din mail. Jeg er altid interesseret i at høre om nye og interessante op
 
 Det betyder desværre at jeg ikke har tid til at tage et telefon opkald med alle der kontakter mig. Ofte er de beskeder jeg får et dårligt match.
 
-Jeg vil gerne fortsætte samtalen, men først, vil jeg gerne afstemme hvilket niveau af anciennitet du leder efter.
+Jeg vil gerne fortsætte samtalen, men først, vil jeg gerne afstemme hvilket niveau af anciennitet du leder efter. Men jeg er dog kun interesseret i konsulent kontrakter, hvis du skriver omkring en fast ansættelse, er jeg utilgængelig til yderligere samtaler.
 
 Kan du sende mig kundens navn og opgave beskrivelse på den opgave, som du kontakter mig vedrørende?
 
